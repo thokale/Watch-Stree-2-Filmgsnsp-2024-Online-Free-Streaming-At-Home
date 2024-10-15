@@ -7,7 +7,7 @@
 
 ### [➤➤ Download ✅➤➤ Stree 2 (2024) Fullmovie Online HD](https://www.gsnsp.com/9-songs-2004-movie-review-film-summary-cast/)
 
-<p dir="auto"><a href="(https://www.gsnsp.com/9-songs-2004-movie-review-film-summary-cast/)" title="PLAY NOW" rel="nofollow"><img src="https://i.imgur.com/jhNGoEt.gif" style="max-width: 100%;"></a></p>
+<p dir="auto"><a href="https://www.gsnsp.com/9-songs-2004-movie-review-film-summary-cast/" title="PLAY NOW" rel="nofollow"><img src="https://i.imgur.com/jhNGoEt.gif" style="max-width: 100%;"></a></p>
 
 Stree 2: Where to Watch the Headless Horror
 
